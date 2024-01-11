@@ -1,1 +1,1 @@
-Just a little something about dogs with pictures.
+Just a little something about dogs; pictures included.
